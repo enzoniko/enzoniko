@@ -16,7 +16,7 @@
 
 - 📫 How to reach me **enzonsb@gmail.com**
 
-- ⚡ Fun fact :- Games, Food and Music🎵 are the reasons to live.
+- ⚡ Fun fact : Games, Food and Music🎵 are the reasons to live.
 
 <br>
 
